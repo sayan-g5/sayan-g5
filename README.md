@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I am a Data Analyst and Web Developer<br>👯 I’m looking to collaborate on any projects related to my domains<br>⚡ Fun fact: The first "computer bug" was an actual bug.<br>📬 Reach me at: sayanmarve20@gmail.com
+🔭 I am a Data Analyst and Web Developer<br>👯 I’m looking to collaborate on any projects related to my domains<br>⚡ Fun fact: The first "computer bug" was an actual bug.<br>📬 Reach me at: sayanmarvel20@gmail.com
 
 
 ## 🌐 Socials:
